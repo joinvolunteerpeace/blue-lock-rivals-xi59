@@ -1,4 +1,4 @@
-
+elite blue lock rivals Script is the best blue lock rivals Script, featuring instant win and auto-collect. Safe and powerful for all your needs.
 
 
 
